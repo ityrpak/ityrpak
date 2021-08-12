@@ -1,1 +1,1 @@
-Héctor Iván Tyrpak - Estudiante de Ingeniería en Sistemas de la Información (FRBA - UTN - Argentina)
+Héctor Iván Tyrpak - Estudiante de Licenciatura en IT (Univeridad de Palermo)
