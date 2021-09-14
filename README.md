@@ -1,1 +1,1 @@
-Héctor Iván Tyrpak - Estudiante de Licenciatura en IT (Univeridad de Palermo)
+Hector Ivan Tyrpak - Bachellor in IT at University of Palermo, Buenos Aires, Argentina.
